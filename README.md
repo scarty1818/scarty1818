@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... scarty@slu.edu
 - 😄 Pronouns: ... SHE/HER
-- ⚡ Fun fact: ... I have my boat captain's license and can on river on inland waterways, boats up to 60 feet
+- ⚡ Fun fact: ... I have my boat captain's license and can pliot a boat on rivers and inland waterways, boats up to 60 feet
 
 <!---
 scarty1818/scarty1818 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
